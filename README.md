@@ -1,0 +1,1 @@
+# Hollywood-Theatrical-Market-Synopsis
